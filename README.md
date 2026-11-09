@@ -1,2 +1,2 @@
 # Mandi-Exchange-
-trade farm produce like shares
+trade farm produce like shares.
