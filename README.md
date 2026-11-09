@@ -1,2 +1,2 @@
 # Mandi-Exchange-
-trade form produce like shares my public website .
+trade farm produce like shares
